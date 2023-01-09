@@ -13,4 +13,4 @@
 [@sard0r_js](https://t.me/sard0r_js)
 
 # Instagram
-[djuraku1ov](https://www.instagram.com/daler.sharifkulov/)
+[djuraku1ov](https://www.instagram.com/djuraku1ov/)
